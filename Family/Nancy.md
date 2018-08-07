@@ -1,0 +1,1 @@
+Nancy is one of my beautiful sisters. She's the only real sister I have. Her simplicity is truly beautiful. My realtionship with her has always been very amicable. She's so simple and innocent that you can't help but adore her. She has all the qualities to be a very good woman. I feel bad that in many ways I've not been able to payback to her but my time will come.
